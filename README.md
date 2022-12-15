@@ -1,1 +1,1 @@
-# bladgesss.github.io
+# bladgesss.mogo.github.io
